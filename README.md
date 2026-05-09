@@ -1,0 +1,2 @@
+# karyawanabsenbaru
+karyawanabsenbaru
